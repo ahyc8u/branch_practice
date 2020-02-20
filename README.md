@@ -3,6 +3,7 @@
 These are a few of my favorite things:
 
 - Flowers (Daisies)
+- FLowers (Roses)
 - Raindrops on roses
 - Whiskers on kittens
 - Bright copper kettles
